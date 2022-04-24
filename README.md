@@ -1,8 +1,7 @@
+# Catherine Blisk, PhD
 
 ![blisk_portrait](/rashed-alakroka-15s.jpg)
 Autor ilustracji: [Rashed Al Akroka](https://www.artstation.com/rashedjrs) 
-
-# Catherine Blisk, PhD
 
 ## Metryczka
 
