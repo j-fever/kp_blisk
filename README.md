@@ -4,7 +4,7 @@ Autor ilustracji: [Rashed Al Akroka](https://www.artstation.com/rashedjrs)
 
 # Catherine Blisk, PhD
 
-{:toc}
+* TOC {:toc}
 
 ## Metryczka
 
