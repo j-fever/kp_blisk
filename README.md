@@ -15,7 +15,7 @@ Autor ilustracji: [Rashed Al Akroka](https://www.artstation.com/rashedjrs)
 
 **Miejsce urodzenia:** Kapsztad, RPA
 
-**Obecne miejsce zamieszkania:** Pacifica
+**Obecne miejsce zamieszkania:** Stary magazyn na granicy Pacifiki i Heywood
 
 **Wykształcenie:**
 
