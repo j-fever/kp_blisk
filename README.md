@@ -83,7 +83,7 @@ Zazwyczaj nosi przy sobie:
 - Papierosy, w tym często te wesołe
 - Zapalniczkę
 - Telefon, przeciętny model
-- MILITECH M-10AF LEXINGTON ze startymi numerami
+- MILITECH M-10AF LEXINGTON ze startymi numerami [Wartość: 2.000 €$; Tryb ognia — pojedynczy. Magazynek zawiera 21 pocisków. Zakres obrażeń: Średni kategorii II (1d12).]
 - Słuchawki, w których gra muzyka tak alternatywna i eklektyczna, że zwykły śmiertelnik nie wie o jej istnieniu
 
 ### Majątek
